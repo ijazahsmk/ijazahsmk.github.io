@@ -1,1 +1,0 @@
-# ijazahsmk.github.io
